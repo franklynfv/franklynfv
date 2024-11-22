@@ -1,3 +1,3 @@
-Hi there, my name is Franklyn.
+Hi there, I am Franklyn, an IT Professional.
 
 
